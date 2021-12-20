@@ -1,0 +1,3 @@
+Please feel free to contribute and help our junior friends👍
+
+While adding cointent, please make sure you are not indulging into any malpractises like paper leak etc....
